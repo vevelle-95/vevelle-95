@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @vevelle-95
+- 👀 I’m interested in Anime, KPop & VidGames!
+- 🌱 I’m currently learning Computer Science!
+- 💞️ I’m looking to collaborate on many wonderful people!
+- 📫 How to reach me:
+- FB: https://www.facebook.com/id.cendana095
+- IG: @ivndrle
+- X/TWT: @cdievle
+- YT: https://www.youtube.com/@ivandariellecendana7437
+- TG: @rtxvle
+- Tiktok: https://www.tiktok.com/@rielarifana
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: ???
